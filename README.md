@@ -9,9 +9,9 @@ Gmail: luizbasandiogo@gmail.com
 
 - Formação Acadêmica 
 
- -Cursando: Falculdade de Análise e Desenvolvimento de Sistemas - Estácio - termino 2027.
+ - Cursando: Falculdade de Análise e Desenvolvimento de Sistemas - Estácio - termino 2027.
 
- -Ensino Médio Completo - Antonio Lacerda Braga - 2024.
+ - Ensino Médio Completo - Antonio Lacerda Braga - 2024.
 
 - Experiência Profissional
 Clínica Odontológica OdontoCompany
